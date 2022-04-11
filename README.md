@@ -6,4 +6,4 @@
 - Me llamo Gabriel Di Giorgio. 
 - Tengo 20 años.
 - Estudio ing. en sistemas en UTN FRBA desde 2020. 
-- Me gusta escuchar música y tocar instrumentos. Principalmente guitarra, piano y un poco el bajo.
+- Me gusta escuchar música (Rock, Jazz, Bossa, Heavy Metal y Reggae) y tocar instrumentos. Principalmente guitarra, piano y un poco el bajo. Últimamente estoy escuchando Metallica.
